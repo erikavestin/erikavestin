@@ -6,3 +6,5 @@
 
 👓 I’m currently working as a teacher at web developer program att Mid Sweden University
 
+💪💖 I love to exercise things like indoor cycling, gympa, running & lifting weights. I also like to renovate my house and be with my family
+
